@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Ventoqipa
+- 📫 ventoqipa@gmail.com 
